@@ -1,1 +1,0 @@
-aqui começa a brincadeira
